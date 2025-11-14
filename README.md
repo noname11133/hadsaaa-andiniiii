@@ -1,2 +1,0 @@
-# hadsaaa-andiniiii
-cewe cantik
